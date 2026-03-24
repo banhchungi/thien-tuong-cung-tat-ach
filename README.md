@@ -15,7 +15,7 @@ Cung Tật Ách là cung đại diện cho tình hình sức khỏe, bệnh tậ
 **Tổng quan về Thiên Tướng cung Tật Ách**
 -----------------------------------------
 
-**[Sao Thiên Tướng là gì](https://magic.ly/Pine-daluv/Sao-Thien-Tuong-la-gi-Luan-giai-chi-tiet-ve-sao-Thien-Tuong-trong-tu-vi)** Người có Thiên Tướng cung Tật Ách thường có sức khỏe khá ổn định, ít gặp phải các bệnh nghiêm trọng. Họ có khả năng chống chịu tốt với bệnh tật và phục hồi nhanh chóng. Nếu bị bệnh, mệnh chủ thường có khả năng phục hồi tốt nhờ vào sức đề kháng mạnh mẽ và sự chăm sóc sức khỏe kỹ lưỡng. Tuy nhiên, mệnh chủ cần đặc biệt chú ý đến các bệnh liên quan đến hệ tiêu hóa và tuần hoàn, tránh các thói quen xấu ảnh hưởng đến sức khỏe.
+**[Sao Thiên Tướng là gì](https://magic.ly/phochuaa/Sao-Thien-Tuong-la-gi-Giai-djoan-y-nghia-Thien-Tuong-tai-12-cung-tu-vi)** Người có Thiên Tướng cung Tật Ách thường có sức khỏe khá ổn định, ít gặp phải các bệnh nghiêm trọng. Họ có khả năng chống chịu tốt với bệnh tật và phục hồi nhanh chóng. Nếu bị bệnh, mệnh chủ thường có khả năng phục hồi tốt nhờ vào sức đề kháng mạnh mẽ và sự chăm sóc sức khỏe kỹ lưỡng. Tuy nhiên, mệnh chủ cần đặc biệt chú ý đến các bệnh liên quan đến hệ tiêu hóa và tuần hoàn, tránh các thói quen xấu ảnh hưởng đến sức khỏe.
 
 **Thiên Tướng cung Tật Ách với các vị trí khác nhau**
 -----------------------------------------------------
